@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @shelbymmead
+- 👀 I’m interested in conservation ecology
+- 🌱 I worked as a 2024-2025 SIP intern for NPS inventory and monitoring network
+- 📫 Reach me by email at shelby.meadd@gmail.com
+- 😄 Pronouns: she/her/hers
